@@ -1,4 +1,4 @@
-# 
+# Automatic mean reversion trading bot tools for Mac OS | Lightweight mean reversion trading bot tools for PC Windows. Featuring router optimization and cross-margin support — optimized for maximum performance on every platform.
 
 
 
